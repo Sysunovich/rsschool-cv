@@ -1,1 +1,0 @@
-[Click for view CV](https://sysunovich.github.io/rsschool-cv/cv)
